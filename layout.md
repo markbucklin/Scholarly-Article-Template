@@ -9,8 +9,6 @@ hp3bskvg99g.html
 iqabb6ts1go.html
 d9mnh97mn8.html
 suiplevba0o.html
-bk9pma9qpb.html
-iforhutal88.html
 ue2mr87evh.html
 avntjhb112o.html
 pu5i8g7mmb.html
