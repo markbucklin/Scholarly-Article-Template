@@ -7,4 +7,3 @@ figures/mass
 abstract.html
 ern30is82qg.html
 19e3j9dcol8.html
-l6bkdiaslig.html
