@@ -14,6 +14,8 @@ ph6kksmqmbo.tex
 kc6dghofgl.html
 gtcivfathio.tex
 tp2e72ub0jg.html
+suf6s43q0mo.tex
+skds9c774i8.html
 s2qf2ps8mng.tex
 50eaf3imdm.html
 pk5pg13sb5.html
