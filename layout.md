@@ -105,5 +105,3 @@ figures/mass
 5v23lgj0lv8.tex
 sgnpedfe62o.html
 abstract.html
-au64saef9eg.html
-1gn8kvd6m5o.html
