@@ -68,6 +68,8 @@ skds9c774i8.html
 hti6i4l65kg.html
 g66nm0j6dfo.tex
 s1erioeofl8.html
+oa07snjgdq.tex
+ki8dhkp5gjg.html
 s2qf2ps8mng.tex
 50eaf3imdm.html
 pk5pg13sb5.html
