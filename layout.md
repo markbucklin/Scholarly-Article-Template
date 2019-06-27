@@ -42,6 +42,8 @@ srmlnlor8v.html
 00uh3nrnc4g.html
 mj2idur1m.tex
 rlvc4oahqn.html
+437v3rg8878.tex
+q19s3qghk7.html
 ph6kksmqmbo.tex
 kc6dghofgl.html
 itl4g3s5ct8.tex
