@@ -18,7 +18,6 @@ figures/mass
 10bae.html
 abstract.html
 epmt0rmqjko.html
-18qrcj3a1pg.html
 au64saef9eg.html
 4mmpcknsk78.html
 3acm66c72jg.html
