@@ -80,7 +80,6 @@ q6bsvbgn7t8.html
 atc8o4sku6o.html
 4qv97rmvuv8.tex
 2jg8ddda5hg.html
-s2qf2ps8mng.tex
 50eaf3imdm.html
 pk5pg13sb5.html
 3c70cb77gm.tex
