@@ -36,6 +36,8 @@ shfpveg0jfo.html
 aegb3edl8e8.html
 aml3sip5qjo.tex
 n023e6666mo.html
+vta4os7mjqo.tex
+srmlnlor8v.html
 ph6kksmqmbo.tex
 kc6dghofgl.html
 itl4g3s5ct8.tex
