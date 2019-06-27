@@ -82,6 +82,8 @@ atc8o4sku6o.html
 2jg8ddda5hg.html
 rqeiu100bu8.tex
 50eaf3imdm.html
+k12o48cvqu.tex
+dparu90uu6o.html
 pk5pg13sb5.html
 3c70cb77gm.tex
 cls8jvdjov8.html
