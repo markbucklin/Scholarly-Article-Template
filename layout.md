@@ -10,6 +10,8 @@ fdvqv87ng7.tex
 9p3boboroig.html
 ph6kksmqmbo.tex
 kc6dghofgl.html
+gtcivfathio.tex
+tp2e72ub0jg.html
 s2qf2ps8mng.tex
 50eaf3imdm.html
 pk5pg13sb5.html
