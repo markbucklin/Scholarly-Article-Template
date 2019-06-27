@@ -87,6 +87,8 @@ dparu90uu6o.html
 pk5pg13sb5.html
 6betcgem8e8.tex
 bu0m9bfmn3o.html
+pbkl5q4vvv8.tex
+gfat8bdldt.html
 3c70cb77gm.tex
 cls8jvdjov8.html
 edvpgb9s76o.tex
