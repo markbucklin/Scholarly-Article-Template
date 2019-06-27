@@ -28,6 +28,8 @@ hlnv3udv6q8.html
 602mo3nqh28.html
 u841ulqivm8.tex
 c4gm5ukaslg.html
+4q8gmkibohg.tex
+o4m2orpar4o.html
 ph6kksmqmbo.tex
 kc6dghofgl.html
 itl4g3s5ct8.tex
