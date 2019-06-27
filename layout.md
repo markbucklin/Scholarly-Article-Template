@@ -89,6 +89,8 @@ pk5pg13sb5.html
 bu0m9bfmn3o.html
 pbkl5q4vvv8.tex
 gfat8bdldt.html
+cg98ud0ulso.tex
+qlluau3he0o.html
 3c70cb77gm.tex
 cls8jvdjov8.html
 edvpgb9s76o.tex
