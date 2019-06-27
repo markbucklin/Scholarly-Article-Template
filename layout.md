@@ -12,6 +12,8 @@ jlaa3csudg.html
 jg6np9ha2bo.html
 9a2bd21kmj8.tex
 46uoku6jqc8.html
+nhhpnd9jhfo.tex
+k1l76q9f0qg.html
 ue2mr87evh.html
 fdvqv87ng7.tex
 9p3boboroig.html
