@@ -13,7 +13,6 @@ pu5i8g7mmb.html
 figures/mass
 10bae.html
 abstract.html
-sjo91ofue28.html
 epmt0rmqjko.html
 kpb1t2i6qi.html
 l9bkrb0961o.html
