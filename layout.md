@@ -14,6 +14,8 @@ jg6np9ha2bo.html
 46uoku6jqc8.html
 nhhpnd9jhfo.tex
 k1l76q9f0qg.html
+ivl4q21rsg8.tex
+oeho8t9m488.html
 ue2mr87evh.html
 fdvqv87ng7.tex
 9p3boboroig.html
