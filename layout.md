@@ -72,6 +72,8 @@ oa07snjgdq.tex
 ki8dhkp5gjg.html
 jfdtvs9bhr.tex
 dm35napu0h8.html
+s7v3spndatg.tex
+6ubq3hrncfo.html
 s2qf2ps8mng.tex
 50eaf3imdm.html
 pk5pg13sb5.html
