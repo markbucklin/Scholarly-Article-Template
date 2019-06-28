@@ -3,9 +3,6 @@ sherr3oku28.html
 r7ufu7ho88o.html
 ah1841bhuvo.tex
 c5f3oe7i3ro.html
-g06nl4s0ncg.html
-83tmepsot7.html
-ub29477okq.html
 ds00vejv8v.html
 5jf68e8mkrg.tex
 b61gcilm0i.html
